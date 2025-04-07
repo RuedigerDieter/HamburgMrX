@@ -9,24 +9,25 @@ Von den hier aufgelisteten Aufgaben müssen mind. 5 erfüllt werden, bevor das M
 
 0. Start am Hauptbahnhof/Kirchenallee. 15 min Vorsprung für Mr. X.
 
-   * Geht in zwei der folgenden Uni-/FH-Gebäude!
+   * Uni (2/5):
      * HAW
      * Universität Hamburg (Edmund-Siemers-Allee)
      * TUHH
      * Hafencity Universität
      * Helmut-Schmidt-Universität
-   * Wasser wir wollen Wasser! Erledigt drei der folgenden Aufgaben: 
+   * Wasser (2/4):
      * Werft einen Stein in den Stadtparksee
      * Hüpft über die Steine in Planten&Blomen
      * Macht ein Foto vor dem Wasserschloss in der Hafencity!
      * Besucht ein schwimmendes Wahrzeichen Hamburgs (U-Boot/Landungsbrücken/Ovelgönne)
-   * Hängt eure 10 Thesen an eine der Hauptkirchen Hamburgs (St.Petri, St. Nicolai, St. Jacobi, St.Michaelis, St. Katharinen)!
-   * Sport:
+   * Sport (1/2):
      * Macht jeweils mindestens 10 Klimmzüge auf einem Spiel- oder Sportplatz!
      * Setzt euch auf einem Discgolfplatz in ein Netz!
-   * Kauft etwas beim Penny auf der Reeperbahn!
-   * Fahrt um die Außenalster!
-   * Erklimmt die Plaza der Elbphilharmonie!
+   * Sehenswürdigkeiten (2/4):
+     * Hängt eure 10 Thesen an eine der Hauptkirchen Hamburgs (St.Petri, St. Nicolai, St. Jacobi, St.Michaelis, St. Katharinen)!
+     * Kauft etwas beim Penny auf der Reeperbahn!
+     * Fahrt um die Außenalster!
+     * Erklimmt die Plaza der Elbphilharmonie!
    * Black Ticket: Fahrt Fähre, Regio oder RegioExpress!
    
 
