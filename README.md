@@ -9,19 +9,24 @@ Von den hier aufgelisteten Aufgaben müssen mind. 5 erfüllt werden, bevor das M
 
 0. Start am Hauptbahnhof/Kirchenallee. 15 min Vorsprung für Mr. X.
 
-   * Geht in ein Uni(/FH)- oder Bücherhallengebäude!
+   * Geht in zwei der folgenden Uni-/FH-Gebäude!
+     * HAW
+     * Universität Hamburg (Edmund-Siemers-Allee)
+     * TUHH
+     * Hafencity Universität
+     * Helmut-Schmidt-Universität
+   * Wasser wir wollen Wasser! Erledigt zwei der folgenden Aufgaben: 
+     * Werft einen Stein in den Stadtparksee
+     * Hüpft über die Steine in Planten&Plomen
+     * Macht ein Foto vor dem Wasserschloss in der Hafencity!
+     * Besucht eine Show der Wasserlichtspiele (ab 01. Mai)
+   * Hängt eure 10 Thesen an eine der Hauptkirchen Hamburgs (St.Petri, St. Nicolai, St. Jacobi, St.Michaelis, St. Katharinen)!
    * Macht jeweils mindestens einen Klimmzug auf einem Spiel- oder Sportplatz!
    * Kauft etwas beim Penny auf der Reeperbahn!
    * Fahrt um die Außenalster!
    * Erklimmt die Plaza der Elbphilharmonie!
    * Black Ticket: Fahrt Fähre, Regio oder RegioExpress!
-   * Fahrt mit einem Bus zu seiner Endhaltestelle!
-   * Hängt eure 10 Thesen an eine der Hauptkirchen Hamburgs (St.Petri, St. Nicolai, St. Jacobi, St.Michaelis, St. Katharinen)
-   * Wasser wir wollen Wasser: Erledingt X/Y
-     * Werft einen Stein in den Stadtparksee
-     * Hüpft über die Steine in Planten&Plomen
-     * (Macht ein Foto vor dem Wasserschloss in der Hafencity)
-     * (ab 01.Mai: Seht eine Showe der Wasserlichtspiele)
+   
 
 n. Ende nach 135 min am Hauptbahnhof/Kirchenallee
 
