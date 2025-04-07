@@ -21,7 +21,9 @@ Von den hier aufgelisteten Aufgaben müssen mind. 5 erfüllt werden, bevor das M
      * Macht ein Foto vor dem Wasserschloss in der Hafencity!
      * Besucht ein schwimmendes Wahrzeichen Hamburgs (U-Boot/Landungsbrücken/Ovelgönne)
    * Hängt eure 10 Thesen an eine der Hauptkirchen Hamburgs (St.Petri, St. Nicolai, St. Jacobi, St.Michaelis, St. Katharinen)!
-   * Macht jeweils mindestens einen Klimmzug auf einem Spiel- oder Sportplatz!
+   * Sport:
+     * Macht jeweils mindestens 10 Klimmzüge auf einem Spiel- oder Sportplatz!
+     * Setzt euch auf einem Discgolfplatz in ein Netz!
    * Kauft etwas beim Penny auf der Reeperbahn!
    * Fahrt um die Außenalster!
    * Erklimmt die Plaza der Elbphilharmonie!
