@@ -15,11 +15,11 @@ Von den hier aufgelisteten Aufgaben müssen mind. 5 erfüllt werden, bevor das M
      * TUHH
      * Hafencity Universität
      * Helmut-Schmidt-Universität
-   * Wasser wir wollen Wasser! Erledigt zwei der folgenden Aufgaben: 
+   * Wasser wir wollen Wasser! Erledigt drei der folgenden Aufgaben: 
      * Werft einen Stein in den Stadtparksee
-     * Hüpft über die Steine in Planten&Plomen
+     * Hüpft über die Steine in Planten&Blomen
      * Macht ein Foto vor dem Wasserschloss in der Hafencity!
-     * Besucht eine Show der Wasserlichtspiele (ab 01. Mai)
+     * Besucht ein schwimmendes Wahrzeichen Hamburgs (U-Boot/Landungsbrücken/Ovelgönne)
    * Hängt eure 10 Thesen an eine der Hauptkirchen Hamburgs (St.Petri, St. Nicolai, St. Jacobi, St.Michaelis, St. Katharinen)!
    * Macht jeweils mindestens einen Klimmzug auf einem Spiel- oder Sportplatz!
    * Kauft etwas beim Penny auf der Reeperbahn!
