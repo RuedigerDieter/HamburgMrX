@@ -5,7 +5,7 @@ Mr. X im Hamburger ÖPNV
 Ein Mr. X-Team muss die u.g. Tasks in der gegebenen Zeit erfüllen. Dabei darf es nicht gefangen werden. Zwei Suchteams versuchen währenddessen, das Mr. X-Team zu fangen. Dabei tracken die Suchteams die Mr. X-Teams jeweils via Airtag, das Mr. X-Team kann die Suchteams ebenfalls tracken. Alle Teams dürfen dabei untereinander kommunizieren.
 
 ### Tasks
-Von den hier aufgelisteten Aufgaben müssen mind. 5 erfüllt werden, bevor das Mr. X-Team das Spiel beenden kann. Zum Beweisen sollte das Mr. X-Team Fotos machen.
+Von jeder Kategorie müssen entsprechend der Zahlen Orte besucht oder Aufgaben ausgeführt werden, bevor das Mr. X-Team das Spiel beenden kann. Zum Beweisen sollte das Mr. X-Team Fotos machen.
 
 0. Start am Hauptbahnhof/Kirchenallee. 15 min Vorsprung für Mr. X.
 
